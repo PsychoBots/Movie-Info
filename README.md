@@ -17,7 +17,9 @@ TG-OpenSource
 Alone_loverBoy
 ```
 </hr>
+
 ## ~Thanks...❤️
 
 ### 𝙁𝙊𝙇𝙇𝙊𝙒 𝙈𝙀 𝙊𝙉 [𝙂𝙄𝙏𝙃𝙐𝘽](https://github.com/LoverBoyXD)
+
 </hr>
